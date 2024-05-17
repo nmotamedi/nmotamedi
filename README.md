@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Java and upskilling my Python.
 - 📫 How to reach me - nadermmotamedi@gmail.com. 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I was included in People Magazine in their 2008 Sexiest Men Alive issue. 
+- ⚡ Fun fact: My picture appeared in People Magazine in their 2008 Sexiest Men Alive issue. 
 
 
 **About me**
